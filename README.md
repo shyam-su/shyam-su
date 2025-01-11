@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://shyam-su.github.io/Resume/](https://shyam-su.github.io/Resume/)
 
-- ⚡ Fun fact **Listen song, Explore New Technology**
+- ⚡ Fun fact **Listen Song, Explore New Technology**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
